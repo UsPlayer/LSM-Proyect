@@ -1,2 +1,1 @@
-Hola xd
-soos
+LSM Proyect es un proyecto del 5 "A". Nuestro objetivo es recrear toda la infraestructura institucional de manera precisa y exacta para propósitos estratégicos como una mejor apreciación de nuestra Institución por parte de escolarizados y docentes, magistrados, personal administrativo y todo el público en general. DESCARGO DE RESPONSABILIDAD: Este es un proyecto NO OFICIAL que es administrado y regulado de forma independiente y con ayuda de la comunidad estudiantil.
